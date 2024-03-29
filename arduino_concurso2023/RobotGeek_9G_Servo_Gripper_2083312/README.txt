@@ -1,1 +1,0 @@
-RobotGeek 9G Servo Gripper by robotgeek on Thingiverse: https://www.thingiverse.com/thing:2083312
